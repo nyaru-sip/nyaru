@@ -1,2 +1,0 @@
-# nyaru
-Good and beat
